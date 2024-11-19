@@ -1,0 +1,1 @@
+Salve, mi chiamo Marco ho 37 anni sono di Roma e lavoro come tecnico di fibra ottica. Ho scelto il percorso come data analyst perchè l'informatica mi ha sempre stimolato ed ho deciso di farla diventare la mia professione!
